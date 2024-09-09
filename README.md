@@ -4,4 +4,4 @@
 intro page working in progress . .
 <p align="center"
 
-see ya!
+***
