@@ -5,7 +5,6 @@ intro page working in progress . .
 
 
 ### for pt !!
-<p align="center"
 
 freely c+h if theres any 'c+h' on my pt skin .
 studying if no response (if you're interacting me. unless my friends (or GANG!!! + my wife) tries to int me, so i responde.)
