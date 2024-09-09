@@ -16,5 +16,3 @@ why i said "wife"? cause i'm taken.
 @ANGELICO-DREAMERS
 @KEVIN-BOOKS
 
-![boxten.](https://i.postimg.cc/g2RLw482/Boxten-Render.png){20px:20px}
-
