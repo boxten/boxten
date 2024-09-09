@@ -1,7 +1,7 @@
 ![](https://litter.catbox.moe/xpzlai.png)
 <p align="center"
 
-intro page working in progress . .
+[rentry](https://rentry.co/boxtenn) ![woah.](https://i.postimg.cc/pTvJ2CVg/Boxten-Render-1.png)
 
 
 ### for pt !!
@@ -16,4 +16,4 @@ why i said "wife"? cause i'm taken.
 @ANGELICO-DREAMERS
 @KEVIN-BOOKS
 
-![woah.](https://i.postimg.cc/pTvJ2CVg/Boxten-Render-1.png)
+
