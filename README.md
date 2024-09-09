@@ -2,9 +2,9 @@
 <p align="center"
 
 intro page working in progress . .
-<p align="center"
 
-# for pt !!
+
+### for pt !!
 <p align="center"
 
 freely c+h if theres any 'c+h' on my pt skin .
