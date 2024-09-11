@@ -1,7 +1,7 @@
 ![](https://litter.catbox.moe/xpzlai.png)
 <p align="center"
 
-[rentry](https://rentry.co/boxtenn) ![woah.](https://i.postimg.cc/pTvJ2CVg/Boxten-Render-1.png)
+[enter here](https://linktr.ee/boxten) ![woah.](https://i.postimg.cc/pTvJ2CVg/Boxten-Render-1.png)
 
 
 ### for pt !!
